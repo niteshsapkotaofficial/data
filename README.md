@@ -1,1 +1,1 @@
-Project Allocations for T1 - 2025 
+Project Allocations for T2 - 2025 
